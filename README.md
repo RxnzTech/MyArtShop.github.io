@@ -1,1 +1,0 @@
-# MyArtShop.github.io
